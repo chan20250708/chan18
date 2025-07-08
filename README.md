@@ -10,4 +10,4 @@
 
 本站专注提供优质高清片源，覆盖爱情、剧情、激情等多种题材，满足不同用户口味。资源更新快，播放无卡顿，支持主流设备在线点播，带来舒适便捷的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan18 ）</span>
